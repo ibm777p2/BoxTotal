@@ -44,7 +44,7 @@ Podemos actualizar esta Política de Privacidad periódicamente. Cualquier cambi
 
 ----------------
 
-# Box Total Terms and Conditions
+# Box Total Términos y Condiciones
 ----------------
 
 ### 1. Introducción
